@@ -5,7 +5,6 @@
 
 - 📫 How to reach me **canertezcan@gmail.com**
 
-- 📄 Know about my experiences [https://www.linkedin.com/in/canertezcan/](https://www.linkedin.com/in/canertezcan/)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
